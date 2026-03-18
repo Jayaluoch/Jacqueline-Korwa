@@ -69,9 +69,13 @@ Infrastructure & Digital Ecosystems:
 My foundational technical skills are backed by an Oracle Foundation Associate certification and advanced proficiency as a Moodle LMS Developer, Administrator, and Educator. This unique combination allows me to build and manage the underlying infrastructure for both enterprise data systems and large-scale digital learning platforms.
 
 🔹 Professional Affiliations & Recognition.
+
 •	Nominee: EPIC (Electronic Privacy Information Center) Data & Privacy Award.
+
 •	Member: Internet Society & Cyber Security Alliance.
+
 •	Board Member: SwimFitClassic CBO.
+
 •	Endorser: Ethical Storytelling Pledge.
 
 
