@@ -1,9 +1,14 @@
 Jacqueline Aluoch Korwa
+
 Privacy & Data Protection | Health Systems | Humanitarian Contexts
+
 Location: Kisumu, KE | Email: jacquelinekorwa@gmail.com | Phone: +254 727-773263
+
 Links: LinkedIn Profile www.linkedin.com/in/jacqueline-aluoch
-| Upwork : upwork.com/freelancers/jacquelinekorwa
-credly: ttps://www.credly.com/users/jacqueline-korwa.35e9ece7
+
+Upwork : upwork.com/freelancers/jacquelinekorwa
+
+|credly: ttps://www.credly.com/users/jacqueline-korwa.35e9ece7
 
 Portfolio
 
