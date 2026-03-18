@@ -1,8 +1,12 @@
 Jacqueline Aluoch Korwa
 Privacy & Data Protection | Health Systems | Humanitarian Contexts
 Location: Kisumu, KE | Email: jacquelinekorwa@gmail.com | Phone: +254 727-773263
-Links: LinkedIn Profile | Upwork 
+Links: LinkedIn Profile www.linkedin.com/in/jacqueline-aluoch
+| Upwork : upwork.com/freelancers/jacquelinekorwa
+credly: ttps://www.credly.com/users/jacqueline-korwa.35e9ece7
+
 Portfolio
+
 🔹 Professional Positioning
 I am a Privacy and Data Protection professional working at the intersection of technology, healthcare, and vulnerable populations. With over 8 years of experience, my work focuses on safeguarding sensitive data including clinical records, Gender-Based Violence (GBV) case data, and adolescent health information within complex, multi-program nonprofit environments. 
 My Technical & Ethical Anchor:
@@ -58,6 +62,6 @@ My foundational technical skills are backed by an Oracle Foundation Associate ce
 •	Member: Internet Society & Cyber Security Alliance.
 •	Board Member: SwimFitClassic CBO.
 •	Endorser: Ethical Storytelling Pledge.
-•	
+•
 
 
